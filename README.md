@@ -1,2 +1,1 @@
-# Mironov, 
-Muradyan 11-IS 103
+# Mironov, Muradyan 11-IS 103
